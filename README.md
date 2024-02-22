@@ -1,3 +1,0 @@
-# TekMark Ads
-
-# LOrem Ipusm
